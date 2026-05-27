@@ -26,4 +26,4 @@ Please reach out to me with any questions and insights!
 
 Email - jus10segrest@gmail.com
 
-Twitter - justin_segrest
+Twitter - [justin_segrest](https://x.com/justin_segrest)
